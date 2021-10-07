@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @marcthe5
-- 👀 I’m interested in ... Developing Static & Dynamic Applications, and always starving for developing knowledge.
+- 👀 I’m interested in ... Developing Static & Dynamic Applications, Always starving for Project Based Learning.
 - 🌱 I’m currently learning ... at Self-Taught/School
 - 💞️ I’m looking to collaborate on ... on beginner's just like me. 
 - 📫 How to reach me ... casucomarc@gmail.com
